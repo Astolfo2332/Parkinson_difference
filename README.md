@@ -2,9 +2,9 @@
 
 
 
-  ∧,,,∧
-(  ̳• · • ̳)
-/    づ♡ Te amo Jhon Freddy         
+                                                                      ∧,,,∧
+                                                                    (  ̳• · • ̳)
+                                                                    /    づ♡ Te amo Jhon Freddy         
 
 
 
